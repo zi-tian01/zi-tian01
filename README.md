@@ -1,0 +1,7 @@
+- 👋 Hi, I’m Zi Tian
+- 👀 I’m interested in Programming, Reading Manhua, Novels and Watching One Piece
+- 🌱 I’m currently learning Javascript, Java, Python and Dart
+- 💞️ I’m looking to collaborate on projects related to minecraft
+- 📫 How to reach me: Just send me a discord message!
+- 😄 Pronouns: he/him
+- ⚡ Contact (discord): nyx.xyn_
